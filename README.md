@@ -10,7 +10,8 @@
 ### Data Scientist. Also graduated in Law and Criminology :mag: Oh! And scriptwriter.
 
 
-Me he unido al sector de Big Data porque es el presente y va a seguir siendo el futuro. ¡Pero guay! Porque integro todos mis conocimientos sobre las demás áreas en este nuevo camino.
+Me he unido al sector de Big Data porque es el presente y va a seguir siendo el futuro. 
+¡Y guay! Porque integro todos mis conocimientos sobre las demás áreas en este nuevo camino. 😎
 
 Me encanta estudiar y saber cada vez más cosas (no todas las puedo almacenar en mi :brain: pero para eso está internet; me gustan los rompecabezas y la satisfacción y mental reward de conseguir solucionar un código o problema :mouse: 💻 🥇
 
