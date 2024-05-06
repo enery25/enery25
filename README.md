@@ -5,7 +5,7 @@
 </p>
 </p>
 
-## <p align="center">Ey, que te veo.</p>
+## <p align="center">"La sabiduría no se encuentra en los datos, sino en la capacidad de interpretarlos y entender su significado". Ray Bradbury en Fahrenheit 451</p>
 # My name is Irene (or enery) :sparkles:
 ### Data Scientist. Also graduated in Law and Criminology :mag: Oh! And scriptwriter.
 
