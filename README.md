@@ -37,7 +37,7 @@ He vivido en España (actualmente en Madrid 🇪🇸📍) :, en Bélgica (Ouais,
 [![Instagram](https://img.shields.io/badge/Instagram-@cest_rene-E4405F?style=for-the-badge&logo=instagram&logoColor=white&labelColor=101010)](https://www.instagram.com/cest_rene/)
 [![Facebook](https://img.shields.io/badge/Facebook-@Irene-1877F2?style=for-the-badge&logo=facebook&logoColor=white&labelColor=101010)]
 </br>
-[![LinkedIn](https://img.shields.io/badge/LinkedIn-Irene_Serrano-0077B5?style=for-the-badge&logo=linkedin&logoColor=white&labelColor=101010)]([https://www.linkedin.com/in/irene-s-68857a159/]))
+[![LinkedIn](https://img.shields.io/badge/LinkedIn-Irene_Serrano-0077B5?style=for-the-badge&logo=linkedin&logoColor=white&labelColor=101010)](https://www.linkedin.com/in/irene-s-68857a159/)
 
 
 
