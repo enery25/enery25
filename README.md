@@ -11,9 +11,9 @@
 
 
 Me he unido al sector de Big Data porque es el presente y va a seguir siendo el futuro. 
-¡Y guay! Porque integro todos mis conocimientos sobre las demás áreas en este nuevo camino. 😎
+Y me gusta poder integrar mis conocimientos en diferentes áreas, investigando y solucionando problemas de datos. 
 
-Me encanta estudiar y saber cada vez más cosas (no todas las puedo almacenar en mi :brain: pero para eso está internet; me gustan los rompecabezas y la satisfacción y mental reward de conseguir solucionar un código o problema :mouse: 💻 🥇
+Me encanta estudiar/conocer, los rompecabezas y la satisfacción (mental reward) de conseguir solucionar un código o problema :mouse: 💻 🥇
 
 He vivido en España (actualmente en Madrid 🇪🇸📍) :, en Bélgica (Ouais, je parle français aussi) 🇧🇪, en UK 🇬🇧 (I speak english fluently) y en Corea del Sur 🇰🇷 (한국어를 조금 할 수 있어요).
 
